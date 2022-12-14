@@ -1,2 +1,2 @@
-# studious-goggles
+# HappyBirthdayNaya
 Happy Birthday Naya
